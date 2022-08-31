@@ -1,1 +1,1 @@
-# EVM-2-kurs-2-sem
+# Sociologia-2-kurs-2-sem
